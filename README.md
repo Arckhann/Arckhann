@@ -21,3 +21,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: [Discord](https://discord.com/users/Arckhann)
 - 😄 Pronouns: **Arckh**
 - ⚡ Fun fact: **I don't love fun facts**
+-----
+**No seriously, a fun fact on me is that around 90% of my projects are on private.**
