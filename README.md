@@ -22,4 +22,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: **Arckh**
 - ⚡ Fun fact: **I don't love fun facts**
 -----
-**No seriously, a fun fact on me is that around 90% of my projects are on private.**
+**"No seriously, a fun fact on me is that around 90% of my projects are on private."**
+**"Why ?"**
+**...**
+**Because 42**
